@@ -1,2 +1,2 @@
 # MOP
-MOP IS THE FIRST PROJECT OF GITHUB
+--Î¢ÐÅÐ¡³ÌÐò
